@@ -1,6 +1,6 @@
 
 
  
-  ![Image](https://github.com/user-attachments/assets/d4bb8331-09ca-4c50-bcd3-4217d4e2382e) BOO !
+  ![Image](https://github.com/user-attachments/assets/d4bb8331-09ca-4c50-bcd3-4217d4e2382e)
 
-[Strawpage](https://pinkbouquets.straw.page/)
+[STRAWPAGE !!](https://pinkbouquets.straw.page/)
