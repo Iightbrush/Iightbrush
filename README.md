@@ -1,6 +1,4 @@
 
-
-   [STRAWPAGE !!](https://pinkbouquets.straw.page/)
- ![Image](https://github.com/user-attachments/assets/2e96dcc8-7f4f-453d-a5d4-980a614f093b)
+![Image](https://github.com/user-attachments/assets/3af50e02-ef6d-41d7-ab6c-10934dcfafb6)
 
 
